@@ -4,7 +4,7 @@
 
 - To contact me, you may do so by:
 	- Email: xiaoxiong9747@gmail.com
-  - Discord: xiaoxiong9747
+  - Discord: caydenno1.de (also my domain!)
   - Telegram: caydenno1
   - Signal: caydenno.01
 
